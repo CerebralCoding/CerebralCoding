@@ -5,3 +5,5 @@ As a tech enthusiast at heart, my expertise lies in seamlessly integrating the r
 My knack for bridging cutting-edge technology with everyday applications enables me to create innovative, user-centric solutions. Whether it's designing intelligent apps or enhancing system performance through AI, my approach is always rooted in making complex technology accessible and impactful. 
 
 Embracing each challenge with an analytical mindset, I am continually pushing the envelope in tech innovation. 🧙‍♂️
+
+Discover the power of seamless video privacy with my app, [Blufa](https://apps.apple.com/app/blufa/id6450781754). Experience cutting-edge automatic face blurring technology, designed to elevate your video confidentiality effortlessly. 🌟🎥🔒
